@@ -1,1 +1,1 @@
-Aula até 26:30
+Finalizado 
